@@ -8,11 +8,8 @@ Como Analista de Dados, possuo experiência em projetos de médio e grande porte
 ## Formação Acadêmica
 
 * MBA em Business Intelligence & Analytics - PUC Minas (2022 - 2024)
-
 * Bacharel em Engenharia Mecânica - Faculdade Pitágoras (2015 - 2019)
-
 * Técnico em Eletromecânica - SENAI (2017 - 2018)
-
 
 ## Cursos
 
